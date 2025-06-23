@@ -1,2 +1,2 @@
-have a yuriful day guys ♡
-![Alt text](https://cdn.discordapp.com/attachments/1342412855340826675/1372746460227047564/999a6a93762e7128f8e82210b7b00217.jpg?ex=6827e544&is=682693c4&hm=d702072c65e57e3bb8f7fa25f517b10e2a0e8895fd99d357e9286b029b96dffc&)
+rest in peace keiko my shayla 💔
+![Alt text](https://media-cldnry.s-nbcnews.com/image/upload/msnbc/Components/Photos/031212/031212_vmed_keiko_9p.jpg)
